@@ -11,5 +11,5 @@
 ## Jawaban Quiz : C, C, D, C
 
 ### Source : https://x.com/EchoPool_Fi/status/1948960490014867637
-![Uploading image.png…]()
 
+<img width="680" height="383" alt="image" src="https://github.com/user-attachments/assets/70222361-ab71-4025-b1d6-5369a1293441" />
